@@ -1,1 +1,1 @@
-# Aim-High-This-is-for-Thesis
+Just a simple guy that will really try to judge the book by its pages and not by its cover. Because good judgment comes from experience, and experience--well, that comes from poor judgment. But the things matters the most is if I don't believe in myself then how will you believe me? 
